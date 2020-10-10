@@ -1,1 +1,0 @@
-# hashiwa000.github.io
